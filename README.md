@@ -2,4 +2,4 @@
 ## Motivation
 
 ## Student Names
-Joud Bakarman, Deem , Lamees AlGhamdi, Norah AlMadhi, Maha
+Joud Bakarman, Deem Aljarba, Lamees AlGhamdi, Norah AlMadhi, Maha Alruwais
